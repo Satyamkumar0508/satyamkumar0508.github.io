@@ -1,1 +1,0 @@
-# satya.github.io
